@@ -1,0 +1,1 @@
+# semanaomnistach10-web
